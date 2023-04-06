@@ -1,2 +1,2 @@
 # literature
-Several writtings and novels I authored throught the years
+Several writings and novels I authored throught the years
